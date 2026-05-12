@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with AI-powered opensea sniper bot | liquidity-analysis + volume-analysis, the #1 opensea sniper bot. Includes liquidity-analysis and volume-analysis for
 
 
 
